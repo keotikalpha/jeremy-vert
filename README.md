@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @keotikalpha
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning computer science 
+- 👋 Hi, I’m @JEREMY VERT
+- 👀 I’m interested in DOING WORK AND PROJECTS
+- 🌱 I’m currently Learning science in information technology.
 - 💞️ I’m looking to collaborate on tracking a device location
 - 📫 How to reach me Whatsapp on 0740267137
 
